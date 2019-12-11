@@ -15,6 +15,5 @@ Most of this creative content is web development or marketing material for custo
 
 ### Additional Digital Marketing and Consulting Clients
 
-Patrick Keel Financial Services
-Tiny Teams SMO
-
+- Patrick Keel Financial Services
+- Tiny Teams SMO
