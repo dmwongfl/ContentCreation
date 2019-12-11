@@ -15,4 +15,6 @@ Most of this creative content is web development or marketing material for custo
 
 ### Additional Digital Marketing and Consulting Clients
 
-Scott Sakowitz established his first orthodontic office, expanded a second location within ~10 months, and quickly became voted one of Orlando's Top Orthodontists by Orlando Family Magazine. https://www.SakowitzSmiles.com
+Patrick Keel Financial Services
+Tiny Teams SMO
+
